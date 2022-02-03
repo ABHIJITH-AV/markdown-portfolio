@@ -1,1 +1,9 @@
-Replace this with a list of your favorite things.
+1. ABHIJITH A V
+2. PEC
+3. CSE
+
+   * HOBBIES
+     🖤WATCHING MOVIES
+     PLAYING GAMES 🎮
+   
+   
